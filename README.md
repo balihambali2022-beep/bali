@@ -1,0 +1,2 @@
+# bali
+pangkas rambut
